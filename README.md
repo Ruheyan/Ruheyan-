@@ -9,11 +9,11 @@ I am also involved in:
 - Outreach
 - Pastoral support
 
-Here is my Imperial page: [Rukia](https://profiles.imperial.ac.uk/r.nuermaimaiti) 
+Here is my Imperial page: [Rukia Nuermaimaiti](https://profiles.imperial.ac.uk/r.nuermaimaiti) 
 
 ## Outside of work 
 I enjoy:
-- handcrafts
+- Handcrafts
   -  Knitting
   -  Embroidery
   -  Sewing
