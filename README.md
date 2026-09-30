@@ -1,4 +1,4 @@
-# Ruki
+# Rukia
 ## My work
 I teach
 - Survival analysis
